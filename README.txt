@@ -1,0 +1,1 @@
+copyright | All rights reserved | Matterhorn Softworks | 2020 (c)
